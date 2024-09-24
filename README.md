@@ -1,3 +1,3 @@
 # Business Plan
 
-What are the things I need
+What are the things I need?
